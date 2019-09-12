@@ -1,2 +1,3 @@
 # ITMAL_Slut_Projekt
-Slut-projektet til faget ITMAL - 
+
+Afleveringsopgaver samt slut-projektet til faget ITMAL.
